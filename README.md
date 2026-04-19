@@ -1,1 +1,2 @@
-ternyata disini aku ada perubahan dengan menambahkan file md 
+ternyata disini aku ada perubahan dengan menambahkan file md
+oke mantap sudah ditambahkan disini, aku balas disini untuk cek apakah komunikasi kita berjalan dengan lancar
